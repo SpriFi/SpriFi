@@ -1,1 +1,1 @@
-# SprinkleFidelity
+# SpriFi LLC
